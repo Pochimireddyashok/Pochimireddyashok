@@ -1,4 +1,3 @@
-enno ratrulu vastayii kaniii .....
-
-jjjubbvghjkhgcvkjgfh
-llll
+#Mylife
+tala kindulu kindulu
+Mylife waste
